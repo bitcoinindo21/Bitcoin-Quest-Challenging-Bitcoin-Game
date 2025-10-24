@@ -24,7 +24,7 @@ Left and Right Side Packaging
 https://www.canva.com/design/DAG12v8xE3U/vsAoYfFNZM6NwJnI0M0zwQ/edit?utm_content=DAG12v8xE3U&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 
 2. Bitcoin Quest Introduction Flyer Design
-https://www.canva.com/design/DAG12oCVq3w/Jc6GG6WX7RUBrs4jmm1r-w/edit?utm_content=DAG12oCVq3w&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+https://www.canva.com/design/DAG2tgHoDh4/flD0AcQJHsGIA1YwsYCWsg/edit?utm_content=DAG2tgHoDh4&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 
 3. Bitcoin Quest Board Game Design
 https://www.canva.com/design/DAG12hKNwMY/LQMNkxr1Z73wDHpAl0hpgg/edit?utm_content=DAG12hKNwMY&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
