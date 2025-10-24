@@ -13,6 +13,8 @@ If you enjoy the game and believe in its spirit of freedom, feel free to support
 
 Bitcoin Quest is an open-source project built for everyone who believes in freedom and collaboration. You’re free to use the provided Canva templates to translate and share the game in your own language 🌍⚡.
 
+![Bitcoin Quest Showcase](https://github.com/user-attachments/assets/68374651-facb-4939-a25b-3d96b3b77fe1)
+
 1. Bitcoin Quest Packaging Design
 
 Front and Back Side Cover
