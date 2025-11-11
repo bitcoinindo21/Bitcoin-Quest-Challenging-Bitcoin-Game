@@ -1,4 +1,4 @@
-Cards Preview
+Cards Preview in 2 Languages
 
 **Indonesian Language**
 
