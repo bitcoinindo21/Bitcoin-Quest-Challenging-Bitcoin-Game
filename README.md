@@ -15,19 +15,3 @@ Bitcoin Quest is an open-source project built for everyone who believes in freed
 
 ![Bitcoin Quest Showcase](https://github.com/user-attachments/assets/68374651-facb-4939-a25b-3d96b3b77fe1)
 
-1. Bitcoin Quest Packaging Design
-
-Front and Back Side Cover
-https://www.canva.com/design/DAG12r9D5lg/kphTBsCHdVE9uJXititgag/edit?utm_content=DAG12r9D5lg&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
-
-Left and Right Side Packaging
-https://www.canva.com/design/DAG12v8xE3U/vsAoYfFNZM6NwJnI0M0zwQ/edit?utm_content=DAG12v8xE3U&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
-
-2. Bitcoin Quest Introduction Flyer Design
-https://www.canva.com/design/DAG2tgHoDh4/flD0AcQJHsGIA1YwsYCWsg/edit?utm_content=DAG2tgHoDh4&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
-
-3. Bitcoin Quest Board Game Design
-https://www.canva.com/design/DAG12hKNwMY/LQMNkxr1Z73wDHpAl0hpgg/edit?utm_content=DAG12hKNwMY&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
-
-4. Bitcoin Quest Cards Design
-[https://www.canva.com/design/DAG12pdrwZI/8c_BlKub48kn_x8a5ih3ng/edit?utm_content=DAG12pdrwZI&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAG2xHUu5-Y/g_kvTPO-UwBZbY6UAZg0nQ/edit?utm_content=DAG2xHUu5-Y&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
