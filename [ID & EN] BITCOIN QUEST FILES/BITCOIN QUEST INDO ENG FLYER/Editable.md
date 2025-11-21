@@ -1,4 +1,4 @@
-Bitcoin Quest Welcoming Flyer (Bilingual)
+Bitcoin Quest Introduction Flyer (Bilingual)
 --
 
 https://www.canva.com/design/DAG5Xi3pvis/M9BzGrlhaAxlpmOxNUvhxQ/edit?utm_content=DAG5Xi3pvis&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
