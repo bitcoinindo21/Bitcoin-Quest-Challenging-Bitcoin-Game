@@ -3,7 +3,7 @@ Bitcoin Quest Box
 
 'Front and Back Side'
 
-https://www.canva.com/design/DAG12r9D5lg/kphTBsCHdVE9uJXititgag/edit?utm_content=DAG12r9D5lg&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+https://www.canva.com/design/DAG5XmmvEDM/_XZ16tt3J6uZLmDErepU2g/edit?utm_content=DAG5XmmvEDM&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 
 <img width="2000" height="1583" alt="BITCOIN QUEST BILINGUAL BOX TOP" src="https://github.com/user-attachments/assets/edbef384-fe26-4087-86de-deaa05657efb" />
 
